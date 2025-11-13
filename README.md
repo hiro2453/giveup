@@ -1,0 +1,2 @@
+# giveup.github.io
+だまされたね
